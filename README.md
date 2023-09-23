@@ -1,8 +1,4 @@
-- 👋 Hi, I’m @Sam32B
-- 👀 I’m interested in thinking and exploring
-- 🌱 I’m currently learning the power of words not mine
-- 💞️ I’m looking to collaborate on making lemonade with pineapples or one mega AI phase from the beginning exploring binary in parts 999 over nb
-- 📫 How to reach me gordy4481@hotmail.com 07584025693
+ur dncin lie cad 3d see potassium head of under the foot of a smoother swg she moves smell hooves trot on the spot ur hand bag s41t
 
 <!---
 Sam32B/Sam32B is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
